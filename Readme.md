@@ -4,7 +4,7 @@
 
 配套资源百度网盘：
 https://pan.baidu.com/s/1zQEi1xxlRbJU4XY7mqXsOQ 
-提取码：d832   
+提取码：d832 
 解压密码：大蛇智能
 
 页面下载（还有勘误）：
